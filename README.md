@@ -1,1 +1,1 @@
-My first readme
+Fuck this togh codeing course 
