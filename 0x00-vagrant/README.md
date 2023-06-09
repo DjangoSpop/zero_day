@@ -1,0 +1,1 @@
+patince in codeing focus on goals be whaat you want my eyes my mind its not easy i know but i can fucken do it 
